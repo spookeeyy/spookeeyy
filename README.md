@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on **your mom**
 - 📫 How to reach **your mom**
 - 😄 Pronouns: **your/mom**
-- ⚡ Fun fact: I like **your mom **
+- ⚡ Fun fact: I like **your mom**
 
 <!---
 spookeeyy/spookeeyy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
